@@ -1,0 +1,2 @@
+# Teddysitali
+Lipina Za mulimu
